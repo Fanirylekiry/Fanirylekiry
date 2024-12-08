@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fanirylekiry
+- 👋 Hi, I’m @FaniryRajaofera
 - 👀 I’m interested in sports and video games 
 - 🌱 I’m currently learning how to code multiple languages like C and HTML,and I'm currently in engineering school
 - 💞️ I’m looking to collaborate on prjects for school
